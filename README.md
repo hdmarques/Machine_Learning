@@ -1,2 +1,1 @@
-# Machine_Learning
-Atividades do curso
+"Minhas alteraá‰es s∆o....bla, bla" 
